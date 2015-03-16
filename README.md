@@ -1,0 +1,2 @@
+# njnjru
+my english wiki
